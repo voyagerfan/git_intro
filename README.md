@@ -1,2 +1,1 @@
 Lamar Petty
-27
